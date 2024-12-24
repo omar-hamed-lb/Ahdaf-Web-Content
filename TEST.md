@@ -4,9 +4,7 @@
 
 We are a diverse group of individuals from Northern Lebanon, united by
 vision to positively transform society. Our members come include
-educators, business professionals and workers from various fields, all
-driven by a genuine aspiration to create meaningful change in our
-community and beyond.
+educators.
 
 **What we offer: Our programs**
 
