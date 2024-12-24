@@ -14,10 +14,6 @@ educators.
 
 3.  Eshraqa
 
-4.  Ajwad centre
-
-5.  Ahdaf School
-
 About Essential:
 
 **Pillars if Islam**
